@@ -26,10 +26,10 @@ ob es Pflaumen oder Birnen im Wäldchen gab.
 Jedenfalls die Saison war gerade richtig für Obst.
 Ich dachte mir, dass er und seine Frau sicher die Obst auf ihrem Tisch häuften.
 Der Flur war auch dunkel. Da kam eine Haushälterin heraus, um anzumelden.
-Aber Professorin N, die das Haus gut kannte, verließ¥ die Haushälterin,
+Aber Professorin N, die das Haus gut kannte, verließ die Haushälterin,
 und leitete mich schnell ins Gästezimmer, ohne uns angemeldet zu haben.
 Vielleicht hatte sie schon telefonisch angemeldet.
-Professor H kam bald heraus, und sagte: "Ich weiß¥ euer Versprechen.
+Professor H kam bald heraus, und sagte: "Ich weiß euer Versprechen.
 Herzlich willkommen." Dieses Jahr ist Professor H genau siebzig Jahre alt.
 Er sah gesund aus, und zeigte ein Lächeln auf dem knabenhaften Gesicht wie früher.
 Mehrere Jahre vorher, bekam er eine Krankheit, die schwer zu heilen war.
@@ -93,7 +93,7 @@ Allmählich wurde das Gespräch transzendental.
 Die fünf tausend Jahre lange Geschichte der Menschheit ist überhaupt Null im Vergleich zur Unendlichkeit der Zeit.
 Inzwischen sind wir jedoch bisher weit fortgeschritten.
 Außerdem erklärt die Naturwissenschaft,
-dass  wir uns in Milliarden Jahren von Schäumen zur heutigen Menschheit entwickelt haben.
+dass wir uns in Milliarden Jahren von Schäumen zur heutigen Menschheit entwickelt haben.
 Sowohl Milliarde wie Billion sollen wenig sein.
 Hiernach werden wir in ewigen Zeiten unendlich fortschreiten..."
 
@@ -121,7 +121,7 @@ Hier und da hörte ich Anekdoten über Professor H:
 An einem Abend lud Professor H Gäste zum Haus ein.
 Als die Ankunftszeit der Gäste nahte, sah seine Frau Käthe zufällig seine Kleidung.
 Sie sagte: "O, David, du musst deine Krawatte schnell wechseln, schnell,"
-und ließ¥ ihn zum ersten Stock hinaufgehen.
+und ließ ihn zum ersten Stock hinaufgehen.
 Inzwischen alle Gäste sammelten sich im Haus.
 Aber Professor H kam nicht herunter, obwohl die Gäste auf ihn lange warteten.
 Als sie die Haushälterin ihn holen ließ, schlief er im Bett ruhig ein...
@@ -137,7 +137,7 @@ Daher wurde das Loch in der Hose des Professors bekannt in der Uni.
 Dann berieten sich die Studenten. Sie beschlossen, ihm das Loch zu berichten,
 ohne Kanten zu machen.
 An einem Tag der nächsten Woche, spazierte Professor H mit den Studenten nach der übung des Seminars.
-Dabei stieß¥ er sich zufällig an einem Rad eines Lastwagens.
+Dabei stieß er sich zufällig an einem Rad eines Lastwagens.
 Ein Student ergriff die Gelegenheit, und sagte:
 "Vorsicht! Ei, Professors Hose ist verletzt worden."
 Professor H sagte: "Was? Wo? Ah, dieses Loch soll ich seit dem letzten Semester haben."
